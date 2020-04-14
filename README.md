@@ -19,3 +19,11 @@ https://github.com/BoyceLig/UnblockNeteaseMusic_GUI
 
 禁止系统更新 Windows Update Blocker v1.5 便携版 
 https://www.nocmd.com/7846.html
+
+搜索
+http://btfox0.com/
+https://bt.ksjituan.com/
+http://bashi5.org/?bt
+http://hao.lzpan.com/
+http://hao.ujuji.com/
+https://99baiduyun.com/
