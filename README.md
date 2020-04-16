@@ -47,3 +47,7 @@ https://skrbt24.icu/
 
 下载器
 https://btorrent.xyz/
+https://www.lanzous.com/i8uvd7e
+
+教程
+https://www.52pojie.cn/thread-1096142-1-1.html
